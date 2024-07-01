@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my mind
 - 📫 How to reach me please
 - 😄 Pronouns🇮🇩
-- ⚡ Fun fact: sleeping
+- ⚡ Fun fact: I likes everything of Mysteria 
 
 <!---
 Sumom747/Sumom747 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
